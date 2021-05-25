@@ -1,4 +1,12 @@
-### Hi there 👋
+### 🔭 I’m currently working on monke machine.
+### 🌱 I’m currently learning nothing because I am too smart.
+### 👯 I’m looking to collaborate on Microsoft Windows with Bill Gates himself.
+### 🤔 I’m looking for help with monke machine. (already got help from radical doe)
+### 💬 Ask me about ni🅱🅱as in Paris.
+### 📫 How to reach me: Idk, on my Portfolio?
+### 😄 Pronouns: Hamood/Habibi
+### ⚡ Fun fact: Fun fact.
+
 
 <!--
 **CookieZookie/CookieZookie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,4 +1,4 @@
-### 🔭 I’m currently working on monke machine.
+### 🔭 I’m currently working on Waifu Generator.
 ### 🌱 I’m currently learning nothing because I am too smart.
 ### 👯 I’m looking to collaborate on Microsoft Windows with Bill Gates himself.
 ### 🤔 I’m looking for help with monke machine. (already got help from radical doe)

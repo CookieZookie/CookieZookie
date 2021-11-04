@@ -3,7 +3,7 @@
 ### 👯 I’m looking to collaborate on Microsoft Windows with Bill Gates himself.
 ### 🤔 I’m looking for help with monke machine. (already got help from radical doe)
 ### 💬 Ask me about ni🅱🅱as in Paris.
-### 📫 How to reach me: Idk, on my Portfolio?
+### 📫 How to reach me: salam friend
 ### 😄 Pronouns: Hamood/Habibi
 ### ⚡ Fun fact: Fun fact.
 
